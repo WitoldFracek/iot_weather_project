@@ -1,1 +1,1 @@
-Witek
+Wite
